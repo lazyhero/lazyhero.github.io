@@ -1,1 +1,0 @@
-# lazyhero.github.io
